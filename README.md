@@ -1,11 +1,11 @@
-<div align="center"><img width="180" height="6" alt="Untitled39_20230601015413" src="https://github.com/user-attachments/assets/781395db-3a22-4fff-9514-cd32f4a71917" />
-<div align="center"><img width="10" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/d74f22ef-2b55-46f6-a5a2-04dbb4af4b18" />
+<div align="center"><img width="1198" height="570" alt="Untitled572_20260602131729" src="https://github.com/user-attachments/assets/38034914-b8ba-413f-a0d5-a647d7e10c0d" />
+
+<div align="center">　
 
 
-<div align="center"><img src="https://komarev.com/ghpvc/?username=vvanisla&label=　　　　★　crayons　　　　　&color=ffd117&style=plastic" alt="vvanisla" />
+<div align="center"><img src="https://komarev.com/ghpvc/?username=softkittie&label=　　　　★　　　　&color=000000&style=plastic" alt="vvanisla" />
 
-<div align="center"><img width="10" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/d74f22ef-2b55-46f6-a5a2-04dbb4af4b18" />
-<div align="center"><img width="90" height="90" alt="Untitled359_20250906193540" src="https://github.com/user-attachments/assets/97eaba19-608f-405a-8fbf-bfdc5f1fb4ca" />
+<div align="center">　
+
   
-[<img width="250" height="250" alt="Untitled436_20260303150416" src="https://github.com/user-attachments/assets/8cb43920-8908-491d-a4e7-f6f451f5a73d" />](https://heartache.atabook.org/)
-
+<div align="center"><img width="1198" height="570" alt="Untitled572_20260602131742" src="https://github.com/user-attachments/assets/0351eb26-f5ab-4f5e-a991-87bf7124b202" />
